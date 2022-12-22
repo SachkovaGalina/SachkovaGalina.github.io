@@ -1,1 +1,1 @@
-# structureusername.github.io
+# SschkovaGalina.github.io
